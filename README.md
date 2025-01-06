@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mustafauygur@outlook.com**
 
-- 📄 Know about my experiences [linkedin.com/in/uygurdev](linkedin.com/in/uygurdev)
+- 📄 Know about my experiences [linkedin.com/in/uygurdev](linkedin.com/in/uygurmustafa)
 
 - ⚡ Fun fact **TESTING 😎**
 
